@@ -4,7 +4,7 @@ idk why, but i like this. inspired by some italian servers
 
 ## Preview(s)
 
-![preview](https://i.imgur.com/Y3T3Bv3.png)
+![preview](https://i.imgur.com/oIMM8ZF.png)
 
 
 ## Authors
